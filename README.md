@@ -3,11 +3,11 @@
 *****
 ## :brown_heart:**Kia Sherrice**
 Kia Sherrice, 21 years of age popularly known in the Philippines as **Kish Pagunsan**. Takes up Bachelor of Science in 
-Information Technology major in Multimedia in West Visayas State University.
+Information Technology Major in Multimedia in West Visayas State University.
  
  
  
-I am a minimalist person, dreamer, believer of God, a designer and a writer. I love to take and edit random photos. 
+I am a minimalist person, a dreamer, believer of God, a designer and a writer. I love to take and edit random photos. 
 I find peace when I'm in the mountain or in a beach.    
 *****
 ## :seedling:I'm currently learning...
