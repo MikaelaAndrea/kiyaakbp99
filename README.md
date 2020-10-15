@@ -15,7 +15,7 @@ I find peace when I'm in the mountain or in a beach.
 * Technopreneurship
 * Networking
 * Ethical Hacking
-* Web and Application Design
+* Web and Mobile Application Design
 * Computer Programming Languages
 *****
 ## :elephant::elephant::elephant:
